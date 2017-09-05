@@ -1,0 +1,1 @@
+Hi, my name is Emiliya Al Yafei. I also go by Myles and Emily. I’m a sophomore in DMD and am very happy about my pastel gradient prism boy, although he took me way too long to open.
